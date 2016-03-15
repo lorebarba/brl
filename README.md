@@ -9,4 +9,4 @@ https://www.youtube.com/watch?v=ODszXLqwT_M
 
 Visit my website to see all my works and feel free to contact me :)
 
-http://www.lorenzobarbagli.net
+http://blore.it
